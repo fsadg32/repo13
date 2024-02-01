@@ -1,1 +1,2 @@
-# repo13
+[![Hello](https://i.ibb.co/99Q6T5b/6236wetg.jpg)](https://discord.gg/yd6zyGg92N)
+Our cheats remain highly elusive, thanks to a unique encryption method tailored for each user. This individualized approach prevents the anti-cheat system from monitoring the cheat's information. Nevertheless, it is crucial to avoid engaging in aggressive hacking behavior, as it poses a potential risk of being reported by other players and subsequently facing a ban.
